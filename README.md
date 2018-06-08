@@ -1,6 +1,6 @@
 # DigitalHumanities
 HW for DIgital Humanities
 I hope you die
-LOOSER
+#LOOSER
 HAHA
 SHITTY MAN
